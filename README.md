@@ -3,4 +3,4 @@
 ###### <p align="center">both on discord !!! ^w^</p>
 * * *
 #####  <p align="center">I love U friends !!!</p>
-##### <p align="center">arkansas ( armansan x3 ) , lakz ( lavakizz!!! ) , connie , john , yoriko ( HAI MAMA! ) , davi ( PAPA??!?!?!?!? ) , mil ( so cool!! ) , mysrerty ( ur so cool ) ! :3 AND MANY MORE FRIENDS!!! U   GUYS ARE INCLUDED!!!!!!!!!!!</p>
+##### <p align="center">arkansas ( armansan x3 ) , lakz ( lavakizz!!! ) , connie , john , yoriko ( HAI MAMA! ) , davi ( PAPA??!?!?!?!? ) , mil ( so cool!! ) , mysrerty ( UR AMAZINF TWIN ) , xen ( we dont talk much but u deserve appreciation >w< ) ! :3 AND MANY MORE FRIENDS!!! U   GUYS ARE INCLUDED!!!!!!!!!!!</p>
