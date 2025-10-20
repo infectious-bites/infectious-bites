@@ -9,3 +9,5 @@
 * * *
 ###### <p align="center">i was struggling SO MUCH trying to find the markdown/scripts. are u trying to find them too? 
 ###### <p align="center">[here's the tutorial i found!](https://gist.github.com/nikhilnayyar002/7a35e653d3d590e317c829243e73b110#h5) (CREDITS GO TO THE CREATOR , TYSM <3)</p>
+https://github.com/infectious-bites/infectious-bites/blob/e3d7f01f441143ca408f3b60f3dd0d3737774b31/FANART.png
+![image alt](https://github.com/infectious-bites/infectious-bites/blob/51fae22d303dd9d38a27142b9514fee3638e9797/Untitled5_20251020175824.png)
