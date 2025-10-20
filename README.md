@@ -11,4 +11,4 @@
 ###### <p align="center">[here's the tutorial i found!](https://gist.github.com/nikhilnayyar002/7a35e653d3d590e317c829243e73b110#h5) (CREDITS GO TO THE CREATOR , TYSM <3)</p>
 * * *
 <p align="center">![image alt](https://github.com/infectious-bites/infectious-bites/blob/71e542bdf913175f79012f7a960d257f5629e0f8/FANART.png)</p>
-###### <p align="center">ART FEATURED BY @mysterys_mist, @cutea465 & @lollipop_fan _all on discord!_</p>
+###### <p align="center">ART FEATURED BY @mysterys_mist, @cutea465 & @lollipop_fan *all on discord!*</p>
