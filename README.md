@@ -22,6 +22,6 @@
 
 ***
 
-##### <p align="center">![image](https://github.com/infectious-bites/infectious-bites/blob/06d385c10ffc3f563f708f1924692d51a69217e9/FANART.png)</p>
+##### <p align="center">![image](https://github.com/infectious-bites/infectious-bites/blob/b021294fcf2bd036d0e701b0c21f6be97dcc053f/2111.png)</p>
 
 ###### <p align="center">ART FEATURED BY @mysterys_mist, @cutea465 & @lollipop_fan *all on discord!*</p>
