@@ -11,7 +11,7 @@
 ##### <p align="center">arkansas ( armansan x3 ) , lakz ( lavakizz!!! ) , macch ( succumb to the voices.. ) , connie ( coolest of cool real ) , yoriko ( HAI MAMA! ) , mil ( so cool!! ) , mysrerty ( UR AMAZINF TWIN ) , xen ( we dont talk much but u deserve appreciation >w< ) ! :3 AND MANY MORE FRIENDS!!! U   GUYS ARE INCLUDED!!!!!!!!!!!</p>
 
 ##### <p align="center">15 , asian , semi-verbal</p>
-##### <p align="center">whispers are on for everyone in ponytown! feel free to send a priv message :3</p>
+##### <p align="center">whispers are on for everyone in ponytown! willing to make new friends, although very awkward at first</p>
 
 ##### <p align="center">i play dandy's world! my pfp is my gingersona, mercurye! 🍪❤️‍🩹</p>
 
