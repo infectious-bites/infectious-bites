@@ -2,7 +2,7 @@
   
 ###### <p align="center">pfp from muse dash , character is Nocturne Bloodheir Buro
 
-###### <p align="center">both on discord !!! ^w^</p>
+###### <p align="center">_mercurika on disc ,, sign my ata!  send a priv messgae on my strawpage!  </p>
 
 ***
 
