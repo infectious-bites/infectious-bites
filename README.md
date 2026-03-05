@@ -1,6 +1,6 @@
 ##### <p align="center">![image](Untitled18_20260305134404-removebg-preview.png)</p>
   
-###### <p align="center">pfp by @cutea465 , banner by @mysterys_mist</p>
+###### <p align="center">pfp from muse dash , character is Nocturne Bloodheir Buro
 
 ###### <p align="center">both on discord !!! ^w^</p>
 
@@ -13,7 +13,7 @@
 ##### <p align="center">15 , asian , semi-verbal</p>
 ##### <p align="center">whispers are on for everyone in ponytown! willing to make new friends, although very awkward at first</p>
 
-##### <p align="center">i play dandy's world! my pfp is my gingersona, mercurye! 🍪❤️‍🩹</p>
+##### <p align="center">i draw! feel free to dm/whisp me if u want me to draw ur oc!!</p>
 
 ***
 
@@ -25,4 +25,4 @@
 
 ##### <p align="center">![image](https://github.com/infectious-bites/infectious-bites/blob/b021294fcf2bd036d0e701b0c21f6be97dcc053f/2111.png)</p>
 
-###### <p align="center">ART FEATURED BY @mysterys_mist, @cutea465 & @lollipop_fan *all on discord!*</p>
+###### <p align="center">ART FEATURED HERE BY @mysterys_mist, @cutea465 & @lollipop_fan *all on discord!*</p>
